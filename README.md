@@ -33,4 +33,4 @@
 <h2>Conclusion : Obtenez Vos Ressources Illimitées Maintenant !</h2>
 <p>N'attendez plus : notre <strong>générateur de ressources illimitées pour Kingshot</strong> est prêt à être utilisé. Téléchargez-le maintenant et commencez à obtenir des <strong>gemmes gratuites illimitées</strong>, sans risques et sans coûts cachés. Dominez Kingshot comme un vrai champion et laissez vos ressources travailler pour vous !</p>
 
-## 🫵🫵 [TÉLÉCHARGEZ LES ASTUCES KINGSHOT](https://tinyurl.com/anto025fr) 🫵🫵
+## 🫵🫵 [TÉLÉCHARGEZ LES ASTUCES KINGSHOT](https://shr.pn/Anto025) 🫵🫵
